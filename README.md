@@ -20,10 +20,10 @@
   <main>
     <h2>2025_04_10</h2>
     <p>
-      On the f1fth day since starting school,after classes,<br>
-      I went to a crepe shop w1th S-chan and M-chan-the two g1rls who sit near me and who I've been talking to every day since the entrance ceremony!<br><br>
-      It really felt l1ke the essence of yourth,and I had so much fun✨<br><br>
-      I alredy want to hang out with this group aga1n somewhere soon (lol).<br><br>
+      On the fifth day since starting school,after classes,<br>
+      I went to a crepe shop with S-chan and M-chan-the two girls who sit near me and who I've been talking to every day since the entrance ceremony!<br><br>
+      It really felt like the essence of yourth,and I had so much fun✨<br><br>
+      I alredy want to hang out with this group again somewhere soon (lol).<br><br>
 
     </p>
   </main>
