@@ -21,7 +21,7 @@
     <h2>2025_04_10</h2>
     <p>
       On the fifth day since starting school,after classes,<br>
-      I went to a crepe shop with S-chan and M-chan-the two girls who sit near me and who I've been talking to every day since the entrance ceremony!<br><br>
+      I went to a crepe shop with S-chan and K-chan-the two girls who sit near me and who I've been talking to every day since the entrance ceremony!<br><br>
       It really felt like the essence of yourth,and I had so much fun✨<br><br>
       I alredy want to hang out with this group again somewhere soon (lol).<br><br>
 
